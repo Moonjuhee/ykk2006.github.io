@@ -1,0 +1,1 @@
+# ykk2006.github.io
